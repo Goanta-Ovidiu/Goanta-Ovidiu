@@ -1,6 +1,7 @@
 ### Hi there 👋 I'm Ovidiu.
 
-- 🔭 I’m currently working on My Skills.
-- 🌱 I’m currently learning Web Developer.
-- 👯 I’m looking to collaborate to various Projects
-- 📫 How to reach me: on Twitter , E-Mail or LinkedIn.
+- 👩‍🔧 I’m currently working to improve my skills.
+- 👨‍💻 Employed at Arvato Systems as Service Support.
+- 🕵️‍♂️ I want to become a Web-Dev.
+- 📫 How to reach me:E-Mail or LinkedIn.
+🙋‍♂️🏃‍♂️🤙🙋‍♂️🏃‍♂️🤙🙋‍♂️🏃‍♂️🤙🙋‍♂️🏃‍♂️🤙🙋‍♂️🏃‍♂️🤙🙋‍♂️🏃‍♂️🤙🙋‍♂️🏃‍♂️🤙🙋‍♂️🏃‍♂️🤙🙋‍♂️🏃‍♂️🤙
